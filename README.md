@@ -1,1 +1,0 @@
-# MRakanNaufal_223510222_AUTENTIKASI
